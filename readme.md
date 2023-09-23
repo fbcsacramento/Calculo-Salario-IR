@@ -1,0 +1,1 @@
+cálculo de salário R$ 7.500,00 - 10% de IR para saber salário líquido 
